@@ -1,0 +1,1 @@
+# analise_exploratoria_atendimentos_de_saude_em_curitiba_2025_Q1-Q2
